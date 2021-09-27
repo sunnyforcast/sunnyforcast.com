@@ -6,4 +6,4 @@
  
 ## Tomorrow will be sunny! 🌞
 
-Check back tomorrow for more good news.
+Check back tomorrow for more good news 😉
